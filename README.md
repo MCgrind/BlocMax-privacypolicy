@@ -27,4 +27,4 @@
 
 <p><strong>Contacting Us</strong></p>
 
-<p>If you have any questions about our Privacy Policy, or if you want to know what information we have collected about you, please email us at :</p>
+<p>If you have any questions about our Privacy Policy, or if you want to know what information we have collected about you, please email us at ace.seedat300@gmail.com  :</p>
